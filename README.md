@@ -1,1 +1,1 @@
-# work-sample
+# Photoshop-work-samples
